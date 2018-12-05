@@ -1,1 +1,1 @@
-http://59.56.76.98:800
+http://fxddxyc.com:800
